@@ -1,4 +1,4 @@
-# Eae, Eu sou o Marco Antonio (Vulgo Narcolino😎)
+# Eae, Eu sou o Marco Antonio
 
 ## WORKING ON 💪:
 
